@@ -1,6 +1,6 @@
 # PRIVACY POLICY
 
-Valentine Wallpaper App built the app as a Free app. This SERVICE is provided by Valentine Wallpaper App at no cost and is intended for use as is.
+Valentine Wallpaper App is a Free app. This SERVICE is provided by Valentine Wallpaper App at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
